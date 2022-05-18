@@ -1,5 +1,5 @@
 ###About me:
-- German 🇩🇪, Austrian🇦🇹
+- German 🇩🇪 , Austrian 🇦🇹
 
 ### Contact:
 - Email: royal_crafter63@outlook.de
