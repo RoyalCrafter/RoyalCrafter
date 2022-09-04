@@ -1,5 +1,4 @@
 ## Contact:
-- Email: royal_crafter63@outlook.de
 - [Discord](https://www.discord.com/channels/@me): Royal_Crafter63#4929
 
 
