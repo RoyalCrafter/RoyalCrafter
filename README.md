@@ -1,5 +1,5 @@
 ## Contact:
-- [Discord](https://www.discord.com/channels/@me): Royal_Crafter63#4929
+- [Discord](https://www.discord.com/channels/@me): royal_crafter
 
 
 ## Languages:
